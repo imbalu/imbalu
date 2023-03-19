@@ -7,4 +7,4 @@
 - 💬 Ask me about Novels, Games, Fitness and DataScience related stuff.
 - 📫 How to reach me: Instagram - @im_hanith
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm taking Spanish courses because I hope to visit Spain at the end of the year.
+- ⚡ Fun fact: No One Has Ever Complained Of A Parachute Not Opening.
